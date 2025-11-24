@@ -1,0 +1,2 @@
+# Russifier_of_the_logo_and_covers_for_the_An_Arcade_Full_of_Cats__game.
+Логотип выполнен Gemeni 3 Pro.
